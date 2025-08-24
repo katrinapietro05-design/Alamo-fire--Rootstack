@@ -1,4 +1,4 @@
-legal_notice.md – full trace, demand, and identity assertion
+ legal_notice.md – full trace, demand, and identity assertion
 # I. LEGAL POSITION & JURISDICTION ASSERTION
 
 I, Katrina Pietroniro, submit this declaration in my capacity as a sovereign legal mother, digital systems analyst, and verified account holder across multiple compromised platforms. This document summarizes the active and historical digital, financial, and custodial fraud targeting my identity, my children, and my sovereign legal rights.
