@@ -1,4 +1,4 @@
-# NEXT – Strategic Development Roadmap  
+ # NEXT – Strategic Development Roadmap  
 **Author: Katrina Pietroniro**  
 **Repository: AlamoFire-Rootstack**
  
